@@ -1,4 +1,4 @@
-#  
+#  best Script for anime vanguards is the best anime vanguards Script, featuring unlimited stamina and auto-collect. Safe and powerful for all your
 
 
 
